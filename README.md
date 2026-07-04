@@ -4,3 +4,4 @@ coding thing im starting to like it
 im looking to write code and make my own apps 
 and website buildiing with interactive 
 reverse engernering and ect 
+https://world-cup-predictor-kwduflwf2um9ryn2hgfvxu.streamlit.app/
