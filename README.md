@@ -1,6 +1,1 @@
-hello i am the @traplandlord
-im intrested in everything  im learning this complicated  but simple 
-coding thing im starting to like it 
-im looking to write code and make my own apps 
-and website buildiing with interactive 
-reverse engernering and ect 
+I’m Valentino Isabell this is my GitHub   I love  girls,money,raves,cars and anything tech ima business man snd enter punier at heart  ima (serial coder ) from west coast the best coast  thanks for  stopping by ur view does matter  I was either lucky or u were looking for me either way ur here so  explore if u see something that could be improved let me no 
